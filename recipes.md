@@ -113,3 +113,27 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+
+### Blueberry Crumb Bars
+
+Ingredients: 
+- 1 1/2 cups of all purpose flour
+- 1/2 tsp baking powder
+- 1/2 cup granulated sugar 
+- 1/2 cup (4oz) unsalted butter
+- 1 egg
+- 2 cups (1 pint) fresh blueberries 
+- 1/4 cup granulated sugar
+- 2 tsp cornstarch
+- 1 1/2 tbs lemon juice 
+
+Instructions:
+1. First, prepare your blueberry filling. in a small bowl, gently toss together the fresh blueberries, sugar, lemon juice and cornstarch. Set aside. 
+2. preheat your oven to 375 deg F, and grease your baking pan (I used an 8x8 inch baking pan).
+3. In your electric mixer bowl, combine the flour, sugar, baking powder, butter and egg, and mix until the dough is moist but very crumbly. 
+4. Divide the dough in half, and press one half into your prepared pan so you have an even layer of "crust".
+5. Next, pour the blueberry filling mixture over the dough pressed into the pan. 
+6. Take the rest of the crumbly dough and sprinkle it over the blueberries. 
+7. Bake for 35 - 45 minutes, or until the juices are bubbling and the dough has browned a little bit (watch the bars carefully towards the end of the baking time so they don't brown too much and don't dry out). 
+8. Let cool completely before cutting and eating!
